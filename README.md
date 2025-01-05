@@ -1,1 +1,1 @@
-This pdf is just a part of my bachelor's degree graduation project theseis.
+This document comprises only the fifth chapter of a ten-chapter thesis describing my bachelor's graduation project. It highlights my primary contribution and area of responsibility. While this chapter was my main focus, my engagement extended to collaborative contributions across the broader scope of the project.
